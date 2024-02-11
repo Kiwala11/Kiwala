@@ -1,4 +1,4 @@
 ---
-title: Sports Through the Eye of Alex! Chief Concerns
+title: Sports Through the Eye of Alex!
 ---
 
